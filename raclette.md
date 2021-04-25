@@ -27,7 +27,7 @@ nicht die Schweizer Variante
 - Raclette Käse
 - Bergkäse
 - Emmentaler
-- Mozarella
+- Mozzarella
 - frischer Salat
 - kleine Tomaten
 - diverse Soßen

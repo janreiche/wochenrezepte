@@ -6,7 +6,7 @@
 - Schicht-Nudeln
 - Zwiebeln
 - Porree
-- Hackfleich (Rinderhack), ggf. Soja-Schnetzel
+- Hackfleisch (Rinderhack), ggf. Soja-Schnetzel
 - Gemüse?
 - Creme Fraiche
 - Reibekäse
