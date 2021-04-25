@@ -6,12 +6,17 @@
 - 2 Eier
 - 2 Dosen Thunfisch
 - Tomatensoße (Denree Famiglia :-) oder Pesto
-- Käse
+- Käse / Mozarella
 - Pizza-Belag, wahlweise
   - Salami (ggf. vegetarisch / vegan)
   - Kichererbsen
   - Kidneybohnen
   - Champignons
+  - Aubergine
+  - Tomaten
+  - Zwiebeln
+  - Thunfisch
+  - Mais
 
 ## Zubereitung
 
