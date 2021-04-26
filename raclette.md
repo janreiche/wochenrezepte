@@ -11,9 +11,9 @@ nicht die Schweizer Variante
 - Kartoffeln
 - Nudeln
 - Pfannkuchen-Teig
-- Quark-Schmarn
+- Quark-Schmarrn
 - Frischkäse
-- KräuterQuark
+- Kräuterquark
 - eingelegte Aubergine
 - eingelegte Zucchini
 - Hackfleisch
