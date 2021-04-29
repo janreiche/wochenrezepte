@@ -6,6 +6,8 @@
 - Chickpea
 - Zucchini 
 - Thunfisch 
+- evtl. Pesto
+- evtl. frische Paprika oder Tomaten als Beilage
 - Käse
 
 ## Zubereitung
